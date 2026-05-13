@@ -2,6 +2,14 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-13 13:12 IR
+- 🗜️ [Arkham_Horror__The_Card_Game_-_How_To_Play.7z.001](https://github.com/amirofsky11/sandbox/raw/main/dl/Arkham_Horror__The_Card_Game_-_How_To_Play.7z.001) `95.0MB`
+
+- 🗜️ [Arkham_Horror__The_Card_Game_-_How_To_Play.7z.002](https://github.com/amirofsky11/sandbox/raw/main/dl/Arkham_Horror__The_Card_Game_-_How_To_Play.7z.002) `42.7MB`
+
+---
+
+
 ### 📅 2026-05-13 13:04 IR
 - 🎬 [10_books_that_will_make_you_ADDICTED_to_reading!.mp4](https://github.com/amirofsky11/sandbox/raw/main/dl/10_books_that_will_make_you_ADDICTED_to_reading%21.mp4) `68.6MB`
 
